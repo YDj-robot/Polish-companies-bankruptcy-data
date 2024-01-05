@@ -1,0 +1,1 @@
+# Polish-companies-bankruptcy-data
